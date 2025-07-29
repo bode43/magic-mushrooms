@@ -1,4 +1,4 @@
-# The Complete Guide to Cultivating Magic Mushrooms with Pablo 🐕
+# The Complete Guide to Cultivating Magic Mushrooms - with Pablo 🐕
 ## From Beginner Techniques to Commercial-Scale Production
 
 ### Table of Contents
